@@ -1,5 +1,5 @@
 # kedvenc receptejk
 
 -vgortfugnrtm
--jfivr8dcd
--erotifrtgtz+
+-jfivr8dcd+fssdfs
+-erotifrtgtz+(asdewse)
